@@ -1,0 +1,2 @@
+# Goshko
+YOU WON IPHONE 12 PRO MAX
